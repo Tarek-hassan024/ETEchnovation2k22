@@ -1,1 +1,0 @@
-# ETEchnovation2k22
